@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...criar novos projetos 
 - 🌱 I’m currently learning ... repositotio digital 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...rosa.santos.gabrielaaescola.pr.gov.br
+- 📫 How to reach me ...rosa.santos.gabriela@escola.pr.gov.br
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...gosto de usar a imaginação para criar novos projetos 
 
